@@ -529,7 +529,7 @@ engagement.
 
 ### 
 
-            ### Who This Is For
+### Who This Is For
 
 You may have picked up this book for various reasons:
 
