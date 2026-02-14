@@ -185,7 +185,7 @@ The request: engage the **arguments**, not just the conclusions. Demonstrate whe
 - Logical reasoning breaks down
 - Greek/Hebrew analysis errs
 
-**If you find genuine errors, document them.** Truth seekers correct mistakes rather than defending them.
+**If you find genuine errors, document them.** Truth seekers correct mistakes rather than defend them.
 
 ---
 
